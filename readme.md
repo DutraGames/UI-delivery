@@ -17,3 +17,5 @@ Delivery layout that I thought could be a good app for the establishment.
 ![image](https://user-images.githubusercontent.com/69097449/134828843-3c5f3ced-1cd8-4e18-8622-357a20fc018d.png)
 ![image](https://user-images.githubusercontent.com/69097449/134828877-01f15cec-de79-45a3-9397-1109aa296d49.png)
 ![image](https://user-images.githubusercontent.com/69097449/134828899-6d44981c-8523-48b4-98f1-30a2346f9b79.png)
+
+### **ALL RIGHTS FROM IMAGES TO ESTABLISHMENTS**
